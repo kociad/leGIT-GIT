@@ -1,20 +1,2 @@
-Oceán, vezmi mě za ruku, zaved mě do země, které jsi pochopil
-Ocean man, take me by the hand, lead me to the land that you understand
-Oceán, cesta na roh zeměkoule je skutečná cesta
-Oceán, kůra opáleného muže pohlceného pískem
-Pohltí žízeň po zemi
-Oceánku, vidíš skrz zázrak úžasu u obermana
-Oceánský muž, kůra je nepolapitelná, když vrhá na dětského člověka
-Oceán, posloupnost formy života zapečené v písku
-Pohltí žízeň po zemi
-Oceán muž, oceán muž
-Oceán muž
-Oceán, vezmi mě za ruku, zaved mě do země, které jsi pochopil
-Oceán, cesta na roh zeměkoule je skutečná cesta
-Oceán, kůra opáleného muže pohlceného pískem
-Pohltí žízeň po zemi
-Oceánku, vidíš skrz zázrak úžasu u obermana
-Oceánský muž, kůra je nepolapitelná, když vrhá na dětského člověka
-Oceán, posloupnost formy života zapečené v písku
-Pohltí žízeň po zemi
-Oceán muž
+Podle velikosti párků si vybereme vhodný hrnec. Do něj nalijeme přiměřené množství studené vody. Vody nepotřebujeme plný hrnec, stačí tak akorát, aby byly párky ponořené (pokud budou plavat, ani to nám nevadí). Do vody v hrnci vložíme připravené párky a přiklopíme pokličkou.
+Hrnec postavíme na plotnu a zapneme na nejvyšší stupeň. Až bude zjevné, že se voda zahřívá k bodu varu, zmírníme výkon na minimum a párky necháme v teplé vodě (voda se vůbec nesmí vařit) pod pokličkou asi 10 minut prohřívat. Po uplynutí zmíněného času párky vyjmeme, nejlépe za pomoci kleštiček, a můžeme servírovat.
